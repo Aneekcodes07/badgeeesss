@@ -1,2 +1,2 @@
 # badgeeesss
-#this si just to collect badges
+#this si just to collect badge
